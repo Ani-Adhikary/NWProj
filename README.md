@@ -7,6 +7,11 @@ Optional <br />
 https://pixabay.com/photos/architecture-family-house-front-yard-1836070/ <br />
 
 
+Reachability <br />
+
+https://medium.com/@sauvik_dolui/network-status-monitoring-on-ios-part-1-9a22276933dc <br />
+https://github.com/ashleymills/Reachability.swift/tree/master/Sources <br />
+
 
 
 
