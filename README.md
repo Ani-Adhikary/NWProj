@@ -29,4 +29,6 @@ New York
 
 https://www.randomlists.com/new-york-addresses <br />
 
-https://50unp.com/?utm_source=CityRealty.com&utm_medium=Banner&utm_campaign=Large&_ct=3xsbow1xffly
+https://50unp.com/?utm_source=CityRealty.com&utm_medium=Banner&utm_campaign=Large&_ct=3xsbow1xffly <br />
+
+https://magazine.realtor/sales-and-marketing/feature/article/2015/01/property-descriptions-power-words
