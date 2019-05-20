@@ -8,6 +8,9 @@ https://pixabay.com/photos/architecture-family-house-front-yard-1836070/ <br />
 
 https://pngtree.com/free-icon/yellow-exclamation-mark_997078 <br />
 
+Logo <br />
+https://www.moneycontrol.com/news/business/personal-finance/expect-a-steady-recovery-in-indian-real-estate-over-the-next-18-months-2417405.html
+
 
 Reachability <br />
 
